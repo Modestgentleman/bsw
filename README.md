@@ -12,3 +12,6 @@
 你发的是 Shangshufang02@outlook.com 这个嘛？
 
 你登录邮箱干啥啊？登录zoom 啊
+
+
+我原来的账号无法登录zoom,
